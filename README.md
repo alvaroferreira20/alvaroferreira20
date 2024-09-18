@@ -11,6 +11,6 @@ Estou sempre em busca de aprender e aprimorar minhas habilidades, especialmente 
 💬 *Entre em contato comigo*:
 
 Email: ag160743@gmail.com
-WhatsApp: +55 11 96906-5602
+Telefone: +55 11 96906-5602
 
  🚀 Vamos construir algo incrível juntos!
