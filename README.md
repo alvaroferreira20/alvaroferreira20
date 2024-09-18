@@ -8,7 +8,7 @@
 
 Estou sempre em busca de aprender e aprimorar minhas habilidades, especialmente em áreas como automação, escalabilidade e resiliência de sistemas. Além disso, participei do **AWS Summit São Paulo**, onde aprofundei meus conhecimentos em soluções de nuvem.
 
-💬 *Entre em contato comigo:
+💬 *Entre em contato comigo*:
 Email: ag160743@gmail.com
 WhatsApp: +55 11 96906-5602
 
